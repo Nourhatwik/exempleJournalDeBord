@@ -10,5 +10,10 @@ Expliquer en 5 à 10 lignes ce qui vous intéresse en TIM. Parlez de ce qui vous
 
 
 
-
-
+Ma réponse:
+J'ai choisi le prorame d'intégration multimédia, car dans tout les domaines de vie, on utilise l'interet. En fait, jai choisi aussi ce programe, car je veux apprendre plus sur **l'ordinateur**, ses logociels, le montage des photos et des videos et aussi, je voudrais créer des jeux vidéo.
+Les cours que me motive en particulier sont:
+• le web 
+• l'audio 
+• la photographie.
+Pour être honnête, je n'ai pas jusqu'à maintenant une idée en tête pour un métier. Avant, je pensais à travailler dans le domaine de design graphique, mais c'est juste une idée pour un futur métier. En fait, je suis tellement perdue dans ce sujet et je ne sais pas ce qui est le mieux pour moi.🤷‍♀️
