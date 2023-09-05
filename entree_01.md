@@ -14,5 +14,6 @@ J'ai choisi l'intégration multimédia, car dans tout les domaines de vie, on ut
 Les cours que me motivent en particulier sont 
 - le web 
 - l'audio 
-- la photographie
+- la photographie.
+  
 Pour etre honnete, je n'ai pas jusqu'a maintenant une idée en tete pour un métier. Avant, je pensais a travailler dans le domaine de design graphique, mais c'est juste une idée pour un futur métier. En fait, je suis tellement perdue dans ce sujet et je ne sais pas ce qui est mieux pour moi.🤷‍♀️
