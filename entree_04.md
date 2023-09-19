@@ -35,9 +35,13 @@ Les qualités requises pour pratiquer ce métier sont d'être une personne créa
 La conceptrice graphique a un rôle principal et c'est la création de rendus architecturaux photoréalistes de qualité. Elle doit également avoir une connaisance à la production infographique de documents imprimés et numériques, ainsi faire des activités de communication et de marketing
 Le point qui m'intéresse dans ce métier, c'est que je vais savoir plus sur le marketing et aussi, traiter des images.
 
-Troixiémement, l'animatrice Jouabilité peut travailler dans des grandes entreprises, comme par exemple « Quantic Dream » qui est un éditeur soutenant la création vidéoludique.
+Troixiémement, l'Animatrice Jouabilité peut travailler dans des grandes entreprises, comme par exemple « Quantic Dream » qui est un éditeur soutenant la création vidéoludique.
+L'Animatrice Jouabilitéa a un rôle principal et c'est de collaborer à la préparation des programmes;
+animer les activités récréatives et culturelles et référer au supérieur immédiat les problèmes litigieux. 
+Le point qui m'intéresse dans ce métier, c'est que je peux animer les activités sportives, récréatives et culturelles
 
+Quatriémement, le Graphic Designer-Video Editor peut travailler dans une entreprise qui travaille à distance. Il existe des espaces de travail collaboratifs. Comme l'équipe Tecsys
+Le Graphic Designer-Video Editor a un rôle principal et c'est de concevoir et créer des illustrations et des mises en page visuellement attrayantes pour divers supports numériques et imprimés.
 
-
-
-
+Cinquiémement,le graphiste idéal est organisé, minutieux et a de fortes aptitudes en communication.
+Le graphiste a un rôle principal et c'est de créer du matériel graphique, faire la mise en page et concevoir des emballages pour des produits rapidement et aussi, créer ou modifier des affiches pour les magasins.
